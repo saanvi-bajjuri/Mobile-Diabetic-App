@@ -1,1 +1,0 @@
-# Mobile-Diabetic-App
